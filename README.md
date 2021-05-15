@@ -1,1 +1,1 @@
-#  Publications
+#  Publications and Authorship
